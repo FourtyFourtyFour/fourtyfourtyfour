@@ -1,5 +1,5 @@
 ### 
 
 
-- 🐻 Pronouns: fuck knuckle
+- 🐻 fuck knuckle
 
